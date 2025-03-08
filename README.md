@@ -33,4 +33,6 @@
 ![Mobile](https://github.com/user-attachments/assets/ea64f9f0-4eff-46cb-a46f-359d36aad4c5)
 
 
+## © Авторство/Authorship
 
+Все логотипы, дизайн и одежда, а также принты и их дизайн принадлежат Кокореву Максиму Владимировичу (FlyBuddyErich)/All logos, designs and apparel, as well as prints and their design are owned by Maxim Vladimirovich Kokorev (FlyBuddyErich)
